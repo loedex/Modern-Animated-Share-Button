@@ -6,7 +6,7 @@ A clean, responsive, and animated **share button** built using only **HTML** and
 
 ## 🚀 Live Demo
 
-[**View on GitHub Pages**](https://github.com/loedex/Modern-Animated-Share-Button.git)  
+[**View on GitHub Pages**](https://loedex.github.io/Modern-Animated-Share-Button/)  
 
 ---
 
