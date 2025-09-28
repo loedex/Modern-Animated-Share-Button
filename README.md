@@ -45,7 +45,7 @@ You can easily:
 **Husnain Ahmad**  
 Email📧:  loedex@yahoo.com  
 WhatsApp📱:  +92 334 5275466
-TikTok: 
+TikTok: https://www.tiktok.com/@loedex0?_t=ZS-9065NDNjTve&_r=1
 
 
 
